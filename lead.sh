@@ -1,3 +1,5 @@
 work on songs
-teach differnt hamornies
+teach differnt harmonies
+master lyrics
+
 
